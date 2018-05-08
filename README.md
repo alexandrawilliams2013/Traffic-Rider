@@ -1,1 +1,1 @@
-# Traffic-Rider
+<p><a href="https://t.co/k6DYV00Cor#trafficrider_hack" target="_blank"><img style="vertical-align: middle;" src="https://i.imgur.com/jtABW5Q.png" alt="" width="338" height="150" /></a></p>
